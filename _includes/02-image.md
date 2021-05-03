@@ -1,1 +1,1 @@
-[Image of the pink puffball himself, from the video game series called Kirby, looking curiously at the camera with a confused expression](https://preview.redd.it/18byxz5x3d031.jpg?width=564&format=pjpg&auto=webp&s=96039545fc2749fe44cd1f4b4540c12e8673f8f5)
+![Image of the pink puffball himself, from the video game series called Kirby, looking curiously at the camera with a confused expression](https://preview.redd.it/18byxz5x3d031.jpg?width=564&format=pjpg&auto=webp&s=96039545fc2749fe44cd1f4b4540c12e8673f8f5)
